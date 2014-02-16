@@ -1,1 +1,1 @@
-Welcome to 島風
+Welcome to 島風 (shimakaze)
